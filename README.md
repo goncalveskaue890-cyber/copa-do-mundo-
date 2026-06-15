@@ -1,1 +1,6 @@
-# copa-do-mundo-
+# copa do mundo
+
+🇧🇷
+
+melhor artilheiro
+Cristiano Ronaldo — 900+ gols🐐
